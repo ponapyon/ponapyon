@@ -1,4 +1,5 @@
 ## Hello, CommuGITy!
+<img width="1210" height="768" alt="img" src="https://github.com/user-attachments/assets/4df5d03d-8277-4ae6-9f42-0ce785382672" />
 My nickname is Pon. 🐇🍎<br>
 I'm in college right now studying IT. A degree is great and all but I need to learn by myself if I want to keep up with the rest of the world. So, so, I'm here to expand my education and experiences - maybe find new opportunities. The beauty of being in this field is the possibilities. <br>
 I'm still in the process of finding out what I specialize in but for now, I'm up for anything!
